@@ -1,2 +1,2 @@
 # Mockup-Wierframe
-[10/10/2022 First board](https://miro.com/app/board/uXjVPPXOxgg=/)
+[10/10/2022 Task 1](https://miro.com/app/board/uXjVPPXOxgg=/)
